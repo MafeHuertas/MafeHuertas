@@ -6,8 +6,7 @@
 _I'am Mafe_
 ================================
 
-* I'like practice to gymnastic and porrismo
-* I love the hamburger
+* My favoeite sport is the gymnastic and porrismo
 * I study Bioingenieria
 * I love the animals
 * Estudio in the university Santo tomas
